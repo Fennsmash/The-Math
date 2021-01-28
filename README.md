@@ -86,6 +86,11 @@ NEXT huge update (an hour-ish after writing v1)(you will see I ended up not fini
 
 I would also like to point out that we live live and in color in 1D. (see what I did there?)
 
+
+
+
+*****************************************************************
+
 Stop here! You can read on how you like, but there are several sections. Jumping around is not only OK, I encourage it. Confusing? Look at a different section and come back to it. I am making the argument that ALL math that has EVER been done is wrong. Let it sink in. Remember, math has always been written by humans; it didn’t fall from the sky. We can be wrong. And we can correct ourselves a few thousand years later. It would be WILD but not impossible. Maybe I will include a relevant example at some point to drive it home (spoiler alert,, it’s an entire history lesson). That’s my first assertion. It HAS happened before and it IS possible for this to be true, and happening right now. The second, is that I have written the first ever formula of true ‘Natural Math’ and if I come even close to making you think it’s a possibility you really, really, should share this. Remember Copernicus?
 
 And so we begin.
