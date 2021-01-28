@@ -14,20 +14,14 @@ This is the (lingual/Mathematical) representation of 4 comprehendible universes.
 
 1.	*We* *can* *be* *defined* *as* *time* *mathematically* (I think this is wrong later…you’ll see, but I also have jumped through black holes and back with my dog sooo gonna need to get some sleep and come back.
 2.	We exist in the highest out of 4 [currently] comprehendible universes
-3.	“God” can be defined as that which is in a higher universe [1/24/21 time not known]
-4.	Other universes are almost certainly both to the left and to the right, extending into infinity, as a loop
-5.	*We* are *mathematically* …forgive me for not finishing the math for you here… [1/24/21 1:28am PST]
+
+4.	Other universes are almost certainly both to the left and to the right, extending into infinity, as a loop - I changed my mind here now that i found imaginary numbers cycle in 4 - 4 might make sense here
+
 6.	This is pure Math/nature. The ends have to meet. Not because of anything I have proven here, but because of what is VERY strongly indicated in my other document. Nature is cyclical. Math is the language of nature. Math is cyclical.
 7.	To the left might be string
 8.	To the right, what is “higher” than us…what an amazing thing to think about. I do not believe we can possibly know this, and I don’t know if I want/need to find out. I think it would have to choose to engage with us. The only sensible answer, despite the insensibility, is that it *IS* us. Regardless, there is too much beauty and perfection in math for worry, and no reason not to hope.
 9.	I love my dog. Thank you for letting your Dad be a little loopy lately. (I’m on a super huge unimaginably punny roll!) That has GOT to be another record and I wasn’t even trying.
-10.	I am not sure what this means but I absolutely legitimately do not think I can know if ANY of this is actually true until I know someone else agrees. And they have to *know* they can’t just say they get it. I basically know that I know this, without even knowing it….weird. It probably actually explains something I will figure out in 5 minutes.
-11.	By the way I have a Communications degree and it took me I think 10 years to get it. I lived that restaurant life and I STILL BELIEVE EVERYONE SHOULD SERVE OTHERS FOR AT LEAST ONE YEAR WITHOUT MAKING A LOT OF MONEY. It’s honestly a beautiful thing to be forced to see the good in everyone despite…not..loving them.
-a.	Lessons: 
-i.	how to communicate effectively when being treated unfairly
-ii.	how to see good when it’s not on the surface
-iii.	appreciation
-iv.	
+
 
 The above is how *I* present the *context* of *us* to *you*.
 *We* are *literally* the essence of time – and there is still something *literally* *greater* than *us*
